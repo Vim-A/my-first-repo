@@ -1,1 +1,0 @@
-Haloo Kakkk Nama Saya David || 535250113g
